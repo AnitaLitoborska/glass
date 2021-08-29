@@ -1,1 +1,0 @@
-# glass page about squash
